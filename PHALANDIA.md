@@ -17,3 +17,8 @@ Join us in Phalandia and embark on an extraordinary journey. Together, let us ha
 Welcome to Phalandia, where innovation knows no boundaries, and the possibilities are limited only by your imagination.
 
 Oh, Phalandia! Our beacon of light. Guiding us forward, through day and night. With hearts intertwined, we strive hand-in-hand, building a future; where dreams expand. Rise, Phalandia!
+
+Discord server: https://discord.gg/DsGuuJRY6j
+Reddit: Coming soon
+Twitter: Coming soon
+YouTube: Coming soon
